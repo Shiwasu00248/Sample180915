@@ -1,1 +1,2 @@
-捕鯨♪捕鯨♪さっさと捕鯨♪
+A Wi-fi system in this university runs very slowly.
+What's gonna on!!!
